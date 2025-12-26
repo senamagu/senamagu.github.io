@@ -1,0 +1,1 @@
+# senamagu.github.io
